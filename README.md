@@ -3,10 +3,10 @@
 - 🌱 I’m currently learning (nothing yet)
 - 📫 Reach me on gmail! natanielkiekiert097@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I own 4 old phones.
+- ⚡ Fun fact: I own 5 old phones.
 
 - More links:
-- Youtube: https://www.youtube.com/@theoszone01
+- Youtube: https://www.youtube.com/@nathanskits1
 - Reddit: https://www.reddit.com/user/Natanielol3841/
 - Discord: Description of https://youtu.be/TeU1ocnQyoc?si=rkXM7rdKZTRkMiDo
 
